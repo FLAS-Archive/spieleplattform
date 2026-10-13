@@ -1,1 +1,1 @@
-Das ist unser Github Repository für unsere Spieleplattform.
+Momentan ist unsere Webseite nicht erreichbar. Versuchen Sie es später erneut.
